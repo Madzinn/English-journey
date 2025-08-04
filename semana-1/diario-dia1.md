@@ -20,29 +20,28 @@ Neste metodo de estudos, estou utilizando do chatgpt.
 
 Essas são as palavras aprendidas do dia.
 
-I | Eu
-You	| Você
-He | Ele
-She	| Ela
-It | Isso/Ele/Ela (neutro)
-We | Nós
-They | Eles/Elas
-Am | Sou/estou
-Are	| É/está/são
-Is | É/está
+- I | Eu
+- You	| Você
+- He | Ele
+- She	| Ela
+- It | Isso/Ele/Ela (neutro)
+- We | Nós
+- They | Eles/Elas
+- Am | Sou/estou
+- Are	| É/está/são
+- Is | É/está
 
 Este site tem um conteúdo que ajudará nos primeiros dias de estudos, vou deixar o link.
 https://www.bbc.co.uk/learningenglish/english/features/the_london_to_edinburgh_challenge/episode-1
 
-Total de tempo de estudos foi cerca de 60min.
-
-Repita as frases muitas vezes, para se familiarizar.
-Acrescente palavras aleatorias, não tem probblemas traduzir de inicio.
-Lembre-se sempre de escrever seu diario em inglês.
-Não existe pressão, tudo no seu tempo. 
-Respeite o amigo de estudos. 
-Errar é normal, evite persistir no erro.
-Foque e se prepare para o segundo dia.
+- Total de tempo de estudos foi cerca de 60min.
+- Repita as frases muitas vezes, para se familiarizar.
+- Acrescente palavras aleatorias, não tem probblemas traduzir de inicio.
+- Lembre-se sempre de escrever seu diario em inglês.
+- Não existe pressão, tudo no seu tempo. 
+- Respeite o amigo de estudos. 
+- Errar é normal, evite persistir no erro.
+- Foque e se prepare para o segundo dia.
 
 
 
