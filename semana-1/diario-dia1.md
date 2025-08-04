@@ -35,6 +35,7 @@ Este site tem um conteúdo que ajudará nos primeiros dias de estudos, vou deixa
 https://www.bbc.co.uk/learningenglish/english/features/the_london_to_edinburgh_challenge/episode-1
 
 Total de tempo de estudos foi cerca de 60min.
+
 Repita as frases muitas vezes, para se familiarizar.
 Acrescente palavras aleatorias, não tem probblemas traduzir de inicio.
 Lembre-se sempre de escrever seu diario em inglês.
